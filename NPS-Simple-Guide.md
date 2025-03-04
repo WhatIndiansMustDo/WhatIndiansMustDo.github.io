@@ -76,6 +76,3 @@ You don’t want to lock your money until 60.
 ---
 ## **Final Thoughts**
 NPS is **a great retirement option with tax savings**, but it comes with restrictions. If you want long-term, stable growth, it’s a solid choice. However, if you need flexibility, consider other options like ELSS or PPF.
-
-Would you invest in NPS? If you need help with allocation, let us know! 😊
-
